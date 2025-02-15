@@ -1,7 +1,7 @@
-![C00lkid](https://img1.picmix.com/output/pic/thumb/3/2/1/3/12333123_9b717.gif)
+![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwxpX-4CBqDiy4pCCmL93j3hK2ey6_b9d7lQ&s)
 
-"TAG! YOU'RE IT!"
 
+about me::::
 I LOVE ROBLOX AND I LOVE LISTENING TO MUSIC ^_^
 
 MY FRIENDS: @TOILETROTTING ; @Tension-Perfection
